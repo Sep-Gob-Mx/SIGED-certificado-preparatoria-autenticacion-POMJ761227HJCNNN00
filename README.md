@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-POMJ761227HJCNNN00
+POMJ761227HJCNNN00
